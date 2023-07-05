@@ -1,7 +1,11 @@
 🌸 I’m @ImKinziRoze | #KinziRoze 🌸
-💕 I’m interested in... Automation & Business!
-🧠 I’m currently learning... how to code!
-💞️ I’m looking to collaborate on... New Brands!
+
+💕 interested in Automation & Business!
+
+🧠 I’m currently learnin how to code!
+
+💞️ I’m looking to collaborate on New Brands!
+
 🧚🏻‍♀️ want to reach me?! | ImKinziRoze@Email.Com
  
  EMAIL IS FOR SERIOUS INQUIRIES ONLY PLEASE!
