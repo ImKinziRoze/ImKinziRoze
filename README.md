@@ -1,6 +1,6 @@
 🌸 I’m @ImKinziRoze | #KinziRoze 🌸
 
-💕 interested in Automation & Business!
+💕 I'm interested in Automation & Business!
 
 🧠 I’m currently learnin how to code!
 
