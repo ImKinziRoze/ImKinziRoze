@@ -1,7 +1,9 @@
 🌸 @ImKinziRoze | #KinziRoze 🌸
+Your Favorite Las Vegas Vixen | #LasVegasGirlsDoItBetter
 ✨ Hi Im Kinzi Roze & I Get Real Kinki ✨
 
 💕 I'm Currently Interested In...
+
 Automation & Ai! I Specifically Love...
 Automating Business Workflows & Binge Reading Productivity Guides!
 
