@@ -1,13 +1,19 @@
-🌸 @ImKinziRoze | Im #KinziRoze 🌸
+🌸 @ImKinziRoze | #KinziRoze 🌸
+✨ Hi Im Kinzi Roze & I Get Real Kinki ✨
 
-💕 I'm interested in Automation & Ai!
-I Specifically Love Automating Business Workflows!
+💕 I'm Currently Interested In...
+Automation & Ai! I Specifically Love...
+Automating Business Workflows & Binge Reading Productivity Guides!
 
-🧠 Im a college cutie currently learning how to code!
+🧠 Im Currently Learning...
+How To Code & Create New Tools For Adult Content Creators!
 
-💞️ I’m looking to Network & Collaborate on New Projects / Brands!
+💞️ I’m Currently Looking To...
+Network & Collaborate With Others!
 
-🧚🏻‍♀️ Want to Reach Me?! 🟰 ImKinziRoze@Email.Com
+🤍 www.AllMyLinks.com/KinziGetsKinki 🤍
+
+🧚🏻‍♀️ How To Reach Me 🟰 ImKinziRoze@Email.Com
  
 🤍 EMAIL 🟰 SERIOUS INQUIRIES ONLY PLEASE!
 
