@@ -1,6 +1,7 @@
 🌸 @ImKinziRoze | Im #KinziRoze 🌸
 
-💕 I'm interested in Automation & Ai! I Specifically Love Automating Business Workflows!
+💕 I'm interested in Automation & Ai!
+I Specifically Love Automating Business Workflows!
 
 🧠 Im a college cutie currently learning how to code!
 
