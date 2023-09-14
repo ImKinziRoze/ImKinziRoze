@@ -1,14 +1,14 @@
-🌸 I’m @ImKinziRoze | #KinziRoze 🌸
+🌸 @ImKinziRoze | Im #KinziRoze 🌸
 
-💕 I'm interested in Automation & Business!
+💕 I'm interested in Automation & Ai! I Specifically Love Automating Business Workflows!
 
-🧠 I’m currently learnin how to code!
+🧠 Im a college cutie currently learning how to code!
 
-💞️ I’m looking to collaborate on New Brands!
+💞️ I’m looking to Network & Collaborate on New Projects / Brands!
 
-🧚🏻‍♀️ want to reach me?! | ImKinziRoze@Email.Com
+🧚🏻‍♀️ Want to Reach Me?! 🟰 ImKinziRoze@Email.Com
  
- EMAIL IS FOR SERIOUS INQUIRIES ONLY PLEASE!
+🤍 EMAIL IS FOR SERIOUS INQUIRIES ONLY PLEASE!
 
 <!---
 ImKinziRoze/ImKinziRoze is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
