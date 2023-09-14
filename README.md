@@ -6,9 +6,11 @@ Automation & Ai! I Specifically Love...
 Automating Business Workflows & Binge Reading Productivity Guides!
 
 🧠 Im Currently Learning...
+
 How To Code & Create New Tools For Adult Content Creators!
 
 💞️ I’m Currently Looking To...
+
 Network & Collaborate With Others!
 
 🤍 www.AllMyLinks.com/KinziGetsKinki 🤍
