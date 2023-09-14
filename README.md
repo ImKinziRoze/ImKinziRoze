@@ -9,7 +9,7 @@ I Specifically Love Automating Business Workflows!
 
 🧚🏻‍♀️ Want to Reach Me?! 🟰 ImKinziRoze@Email.Com
  
-🤍 EMAIL IS FOR SERIOUS INQUIRIES ONLY PLEASE!
+🤍 EMAIL 🟰 SERIOUS INQUIRIES ONLY PLEASE!
 
 <!---
 ImKinziRoze/ImKinziRoze is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
